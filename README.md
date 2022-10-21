@@ -1,0 +1,8 @@
+# FUD-CRYPTER
+FUD CRYPTER - BYPASS WINDOWS DEFENDER - RUNPE - NEW METOD CRYPT - FREE BYPASS
+RUNPE BYPASS WINDOWS DEFENDER BYPASS SMART SCREEN BYPASS GOOGLE CHRONE AND ALL AV 0/26
+# TELEGRAM - https://t.me/Crypt_0x00_V2
+# TELEGRAM GROUP CRYPTFILE - https://t.me/CryptService_0x00_V2
+![Без имени-1-восстановлено](https://user-images.githubusercontent.com/113298884/194581985-aedbd96e-e886-43f5-82f8-814cb85e1a9b.JPG)
+# TELEGRAM - https://t.me/Crypt_0x00_V2
+# TELEGRAM GROUP CRYPTFILE - https://t.me/CryptService_0x00_V2
